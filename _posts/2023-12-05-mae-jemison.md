@@ -22,3 +22,6 @@ Jemison foi professora na Cornell University e no Dartmouth College, de 1995 a 2
 
 <h3>Vida pessoal</h3>
 Jemison construiu um estúdio de dança em sua casa e coreografou e produziu vários shows de jazz moderno e dança africana. Na primavera de 1996, Jemison apresentou uma queixa contra um policial do Texas, acusando-o de brutalidade policial durante uma parada de trânsito que terminou em sua prisão. Ela foi detida pelo policial Henry Hughes, de Nassau Bay, por supostamente fazer uma inversão de marcha ilegal e presa depois que Hughes soube de um mandado pendente em Jemison por uma multa por excesso de velocidade. No processo de prendê-la, o policial torceu o pulso e a forçou a cair no chão, além de fazê-la andar descalça do carro de patrulha até a delegacia. Na denúncia, Jemison disse que o policial a maltratou física e emocionalmente. O advogado de Jemison disse que acreditava que ela já pagara a multa por excesso de velocidade, anos atrás. Ela passou várias horas na prisão e foi tratada em um hospital da região, após ser libertada com hematomas profundos e um ferimento na cabeça. O oficial da Baía de Nassau foi suspenso com pagamento pendente de uma investigação. Jemison entrou com uma ação contra a cidade de Nassau Bay e o oficial.
+
+<h4>Texto retirado do 
+  <a href="https://pt.wikipedia.org/wiki/Mae_Jemison">Wikipédia</a></a></h4>
